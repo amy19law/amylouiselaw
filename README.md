@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @amy19law
+- 👋 Hi, I’m amy
 - 👀 I’m interested in photography, creating, traveling, nature, technology, film.
 - 🌱 I’m currently learning about nfts, crypto, web development, app development, data analyse
 - 💞️ I’m looking to collaborate on exciting projects
